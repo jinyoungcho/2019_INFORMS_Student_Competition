@@ -1,3 +1,7 @@
+# Hankuk University of Foreign Studies 3rd Place
+
+https://youtu.be/P7u_W9_jtJk
+
 # 2019_INFORMS_Student_Competition
 
 General Motors: Redefining Vehicle Delivery with Autonomous Cars
